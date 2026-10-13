@@ -10,7 +10,7 @@ El diseño utiliza una identidad editorial y artesanal basada en verde profundo,
 
 | Información | Detalle |
 |---|---|
-| Ubicación | Villa El Salvador, Lima, Perú |
+| Ubicación | [Mercado El Sol, Av. El Sol S/N, Villa El Salvador](https://maps.app.goo.gl/T29Bz9iM5QTX18ve8) |
 | WhatsApp | [+51 954 525 535](https://wa.me/51954525535) |
 | Instagram | [@estaciondulceyenny](https://www.instagram.com/estaciondulceyenny/) |
 | Facebook | [Estación Dulce Yenny](https://www.facebook.com/profile.php?id=61584760162220) |
